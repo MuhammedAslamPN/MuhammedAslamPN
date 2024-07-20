@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MuhammedAslamPN
+- 👀 I’m interested in Data Scince
+- 🌱 I’m currently learning BSc Computer Science
